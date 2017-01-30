@@ -14,7 +14,6 @@ Due to my birthday I bake some cake for you :birthday: :balloon:
 - :cake:
 - :cake:
 - :cake:
-- :cake:
 
 ### Presents
 - CompanyLove 💙
